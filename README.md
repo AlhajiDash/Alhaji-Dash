@@ -1,2 +1,2 @@
 # Alhaji-Dash
-The youngest #Bloger &amp; also a Developer
+The youngest Bloger &amp; also a Developer
